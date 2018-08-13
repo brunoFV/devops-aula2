@@ -1,5 +1,4 @@
 # devops-aula2
-# Neymar
-# arnold
-# Jack chan
-# jet li
+# bring the pain
+# cream
+# Lose yourself
