@@ -1,2 +1,4 @@
 # devops-aula2
-#Nome: Bruno
+# bring the pain
+# cream
+# Lose yourself,
